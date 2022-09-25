@@ -1,5 +1,5 @@
 ### 👋 Hi, there! I’m Victor
--   I’m a fascinated by Rock'n Roll
+-   I’m a fascinated by the Rock'n Roll
 -   I love Cine and Movies that break and open my mind
 -   I'm a sick and a completely fanatic fan of Pink Floyd
 -   I love books, HQs and mangas, but I'm very lazy to read them (unfortunately... *don't judge me :'(* )
